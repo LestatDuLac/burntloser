@@ -1,11 +1,15 @@
 # burntloser
 ***𓏲 ๋࣭  ࣪ ˖ tord's pt system info.***
 
-*𓏲 . My name is Tord , and my pronouns are he / him.*
+*𓏲 . My name is Tord , and my pronouns are he / him.* 
+
                   𓏲 ๋࣭  ࣪ ˖
 *𓏲 . I am an Addiction holder and Apathy holder.
+
    . Please do not interect if you are under 16.
+
    . You may c + h at any time.
+   
    . Alawys interact at your own risk.
 
 ***𓏲 ๋࣭  ࣪ ˖ BYI***
