@@ -5,7 +5,7 @@
                   𓏲 ๋࣭  ࣪ ˖
 *𓏲 . I am an Addiction holder and Apathy holder.
 
-   . Please do not interect if you are under 16.
+   . Please do not interect if you are under 17.
 
    . You may c + h at any time.
    
